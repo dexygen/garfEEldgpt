@@ -1,1 +1,1 @@
-# garfEEldgpt: no can haz hamburgerz
+# garfEEldgpt: i can haz hamburgerz?
